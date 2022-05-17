@@ -1,2 +1,3 @@
 # Westernhillvillas
 It is one of the richest hotspots where there are more wild plant and animal species. Apart from the pleasure we get from nature, it contains man-made treasure like luxury farm villas, gated community villas, resorts, farmland, plots and many properties in Kotagiri, Coonoor &amp; Anaikatti. These are available to chill off one's weekend happily.
+The Indian cities are now facing ridiculous problems like polluted atmosphere and polluted air, polluted water, noise pollution and places fully surrounded by heavy traffic. To overcome and get rid of this lifestyle by taking a weekend break, then there is no other better option like staying in the Western-ghats region.
